@@ -1,0 +1,1 @@
+No Content: https://kickthebuddy.lol/play/kick-the-buddy/sw.js
